@@ -11,3 +11,4 @@ jhomjhom84/jhomjhom84 is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your changes.
 --->
 eu nao sei como fazer isso
+cont 2 = mulheres e fazer muitas amizades rs principalmente bahianas rs
